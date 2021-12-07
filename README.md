@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Superstrice
+- 👀 I’m interested in theater
+- 🌱 I’m currently learning C#
+- 📫 How to reach me shrink to my height or get longer arms
